@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with top Vegas Pro for PC | Vegas Pro for Windows Filter | motion-tracking + noise-reduction, the #1 filter. Includes
 
 
 
